@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+### Where to find me
+[twitter](https://twitter.com/@Soledad12297670)
+[facebook](https://www.facebook.com/soledad.m.godoy)
+[instagram](https://www.instagram.com/soledad.m.godoy/)
