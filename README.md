@@ -18,3 +18,4 @@ Here are some ideas to get you started:
 [twitter](https://twitter.com/@Soledad12297670)
 [facebook](https://www.facebook.com/soledad.m.godoy)
 [instagram](https://www.instagram.com/soledad.m.godoy/)
+[gmail](https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox)
